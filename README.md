@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Kyo-tww
-- 🥀 I’m interested in draw
-- 📫 How to reach me ...
+- 🥀 I’m interested my lover🫦💐
+- 🪽 How to reach me ...by message..
 - 🌹 Pronouns: he
 - 💋 Fun fact: i love playing roblox
 
